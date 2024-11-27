@@ -5,9 +5,9 @@
 - 📫 Can reach me on e-mail : irajajr2022@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: Swiming , Movies , Investigative Series
-- Professor Disciplina de Medição e Verificação. Curso Eficiência Energética e Energias Renováveis. PECE Poli de 2014 a 2022
-●	Executed over 1,000 Energy Efficiency and EPC projects.
-●	Directed approximately 100 projects annually.
-●	Achieved a reduction of over 40,000 tons of CO2 emissions per year.
+- Professor M&V applied in Energy Efficecy and Renewable Energy. PECE Poli de 2014 a 2022
+- Executed over 1,000 Energy Efficiency and EPC projects.
+- Directed approximately 100 projects annually.
+- Achieved a reduction of over 40,000 tons of CO2 emissions per year.
 
 
